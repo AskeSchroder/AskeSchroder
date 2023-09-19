@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AskeSchroder
-- 👀 I’m interested in Your momma
+- 👀 I’m interested in Your Momma
 - 🌱 I’m currently learning to get bitches
 - 💞️ I’m looking to collaborate on getting bitches
 - 📫 How to reach me if u a bitch u know how to find me
