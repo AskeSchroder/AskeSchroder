@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AskeSchroder
 - 👀 I’m interested in Your Momma!
-- 🌱 I’m currently learning to get bishes
-- 💞️ I’m looking to collaborate on getting bishes
+- 🌱 I’m currently learning to get bitches
+- 💞️ I’m looking to collaborate on getting bitches
 - 📫 How to reach me: if u a bish u kno how to find me
 
 <!---
